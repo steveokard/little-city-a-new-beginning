@@ -24,5 +24,15 @@ Aidan explains that he is a citizen of the TPaw Corp. Defecto, not a custom to t
 
 Aidan stops and walks in front of Defecto, "small creatures like us are often prized. Look how much you have advanced using what is commonly considered household items to the larger world."
 
-Defecto raises his eyebrow, "I never thought of that."
+Defecto raises his eyebrow, "I never thought of that." He runs up to Aidan, "I thought corporations were bad at running societies."
+
+Aidan nods, "they are."
+
+"Zenon let's say you that?"
+
+Aidan glance over at Defecto, "there is a reason we are not that big here or any of our worlds. Some of our competitors have tried to run a civilianization on their own but it usaslly ends in dictatorship." He sighs, "look, Zenon brought me here because he wants to meet you. It's easier to do it back at HQ."
+
+"But about the citizens?"
+
+"We got that covered."
 
