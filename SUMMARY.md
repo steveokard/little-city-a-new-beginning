@@ -5,4 +5,5 @@
 * [Chapter Two](chapter-two.md)
 * [Chapter Three](chapter-three.md)
 * [Chapter Four](chapter-four.md)
+* [Chapter Five](chapter-five.md)
 
