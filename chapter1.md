@@ -2,6 +2,8 @@
 
 "You wouldn't think in the vast of nothingness that is normally space there would be life elsewhere. In fact, you are not alone in the universe. This planet is one of many planets maintained owned by corporations. Some corperations wish to make themselves known within those planets while others prefer to work in the shadows or under a different industry in the world," Mr. Defecto.
 
+One year earlier.
+
 Little City is a city of mice. Not much tends to go on in this small but active metropolis. However, Little City has fallen into hard times as of recently. The current mayor is unable to keep up with the growing crime caused by the lack of resources to keep up with the growing number of residents.
 
 "Zenon," Mia, secretary to Zenon.
