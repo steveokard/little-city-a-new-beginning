@@ -10,3 +10,13 @@ Aidan shows Defecto to his new room onboard the space station. He explains that 
 
 "Huh," Aidan tilts his head. "I don't think Zenon anticipated this."
 
+Later, back at Zenon's office. The door opens to reeal Defecto.
+
+"I will do it!" Defecto yells to Zenon. "On one condition: I'm staying here."
+
+"Huh." Zenon walks up to the little mouse. "Aidan told me about how you were feeling. He is right. I didn't see this coming."
+
+"Can you do that, Mr..?"
+
+"Call me Zenon or Zen. Zenon Tigerpaw is my full name. TPaw means Tigerpaw too," the tiger smiles before looking up and thinks to himself. "We are prepared to send down a new mayor, president, you name it, anywhere for any situation. Little City is no expectation. That being said, they still do work for us. You are welcome to be in charge of that division, just in case."
+
