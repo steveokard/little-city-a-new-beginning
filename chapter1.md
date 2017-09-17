@@ -1,4 +1,4 @@
-# Little City
+# Chapter One
 
 "You wouldn't think in the vast of nothingness that is normally space there would be life elsewhere. In fact, you are not alone in the universe. This planet is one of many planets maintained owned by corporations. Some corperations wish to make themselves known within those planets while others prefer to work in the shadows or under a different industry in the world," Mr. Defecto.
 
