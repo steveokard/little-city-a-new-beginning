@@ -2,9 +2,9 @@
 
 Aidan shows Defecto to his new room onboard the space station. He explains that he can watch TV stations at HQ or from other planets, including your own, to Defecto's amzement. Aidan then hands him a card contianing the information to access his cryptocurrency-based wallet. "The company has no control over it regulates itself, similar to your world's Bitpaw. TPaw only keeps track of which wallet belongs to who and lets the public ledger speak for itself."
 
-"100 million units?"
+"10 CU?" Defecto tilts his head. "That doesn't seem like a lot."
 
-"TPaw Units, to be precise," Aidan adds. "All planetary companies have their own cryptocurrency that follows the Unit system. Clearly, Zenon hopes that'll encourage to his way."
+"But it is. CU means CryptoUnit." Aidan adds. "All planetary companies have what's known as a cryptocurrency. Clearly, Zenon hopes that'll encourage to his way." Aidan explains that traditional money would be impossible to trade due to vastness of space.
 
 "I," Defecto looks around. "I don't even know what this could buy. Before now, my life was back on planet Shy. Now I don't know anymore."
 
