@@ -6,9 +6,9 @@
 
 Aidan laughs, "I'm not from anywhere here."
 
-Aidan explains that he is a citizen of the TPaw Corp. Defecto, not a custom to this standard of living, tilts his head at the representative in confusion. Aidan goes on to explain that TPaw Corp. owns thousands of planets across the solar system. Each company competes to make a better planet which is done by advancing civilizations within them.
+Aidan explains that he is a citizen of the TPaw Corp. Defecto, not accustomed to this standard of living, tilts his head at the representative in confusion. Aidan goes on to explain that TPaw Corp. owns thousands of planets across the solar system. Each company competes to make a better planet which is done by advancing civilizations within them.
 
-"This," Defecto pauses. "Is a lot to take in. How come I never heard of you?"
+"This," Defecto pauses. "Is a lot to take in. How come I've never heard of you?"
 
 "TPaw Corp. prefers to intervene only if it gives them edge," Aidan replies, scanning the surroundings. "Little City caught the eyes of one of our secretaries, Mia. She noticed you were on the verge of becoming the first in this planet to achieve independence in energy production."
 
@@ -30,7 +30,7 @@ Aidan nods, "they are."
 
 "Zenon let's say you that?"
 
-Aidan glance over at Defecto, "there is a reason we are not that big here or any of our worlds. Some of our competitors have tried to run a civilianization on their own but it usaslly ends in dictatorship." He sighs, "look, Zenon brought me here because he wants to meet you. It's easier to do it back at HQ."
+Aidan glance over at Defecto, "there is a reason we are not that big here or any of our worlds. Some of our competitors have tried to run a civilization on their own but it usually ends in dictatorship." He sighs, "look, Zenon brought me here because he wants to meet you. It's easier to do it back at HQ."
 
 "But about the citizens?"
 

@@ -8,11 +8,11 @@ Little City is a city of mice. Not much tends to go on in this small but active 
 
 "Zenon," Mia, secretary to Zenon.
 
-"Look at this world," Zenon waves his hand across the window out in the space. "It's so beiaitful."
+"Look at this world," Zenon waves his hand across the window out in the space. "It's so beautiful."
 
 Mia pauses and gulps, "we have a problem in Sector 23."
 
-"Sector 23?" Zenon turns his head to Mia. "That's one of our most popular regions. What could be wrong?"
+"Sector 23?" Zenon turns his head to Mia. "That's one of our most populated regions. What could be wrong?"
 
 "It's Little City," Mia replies. "Located on Planet 23.5 in the Wellwood region."
 
@@ -22,9 +22,9 @@ Zenon faces Mia, having her full attention. "You've been catching up. What about
 
 "How advanced is that planet?"
 
-"They're on the verge of exploiting of renewable energy resources, sir."
+"They're on the verge of exploiting renewable energy resources, sir."
 
-"Computer," Zenon looks slightly at the cieling. "Remind me to boost that planet's resources." He puts his hands into his pockets and back down at Mia, "thanks, Mia. You can go." Mia walks back to her office. "Computer, patch me threw to Little City, Wellwood. Planet 23.5."
+"Computer," Zenon looks slightly at the ceiling. "Remind me to boost that planet's resources." He puts his hands into his pockets and looks back down at Mia, "thanks, Mia. You can go." Mia walks back to her office. "Computer, patch me through to Little City, Wellwood. Planet 23.5."
 
 "Who is this?" Mayor Defecto asks.
 
